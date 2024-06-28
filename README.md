@@ -29,7 +29,7 @@ When you play with me for a long time
 
 -But sometimes me also very hot-tempered and prone to cursing , Don't hate me for that😭😭😭
 
--Me really like having you sit or lie next to me. It feels like it's not lonely like me usually do afk alone😘
+-I really like cuddling in there, often side by side😘
 
 You can follow my page if you want ✨
 
