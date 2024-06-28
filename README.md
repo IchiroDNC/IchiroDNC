@@ -21,7 +21,7 @@ Pony town
 
 -You can come and get to know me!
 
--The things I make are my style, please don't criticize or copy them🥲
+-The horses I make are my style and I hope you don't copy them  🥲
 
 -Sometimes me slow to respond to messages because me tend to ignore them, please understand🤧
 
