@@ -10,8 +10,6 @@ Brief introduction about me
 
 •I'm young, so please understand that I may be a bit childish 🌹
 
-•Nationality :Vietnamese 🇻🇳
-
 🎮In this part I will talk about the game🎮
 Pony town
 
