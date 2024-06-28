@@ -33,6 +33,6 @@ When you play with me for a long time
 
 -Me really like having you sit or lie next to me. It feels like it's not lonely like me usually do afk alone😘
 
-𝙔𝙊𝙐 𝘾𝘼𝙉 𝙁𝙊𝙇𝙇𝙊𝙒 𝙈𝙔 𝙋𝘼𝙂𝙀 𝙄𝙁 𝙔𝙊𝙐 𝙒𝘼𝙉𝙏✨
+You can follow my page if you want ✨
 
 Sorry if the English translation is wrong, I hope you understand :'33😓
