@@ -13,7 +13,7 @@ Brief introduction about me
 🎮In this part I will talk about the game🎮
 Pony town
 
--I usually afk at the genshin impact area in VN1
+-I usually afk at the genshin impact area in VN1 (sometimes I will go to other areas)
 
 -I don't have many friends because I'm afraid to talk🥺
 
