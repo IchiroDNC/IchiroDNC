@@ -4,7 +4,7 @@ Sorry I'm not good at English so I have to use google translate
 
 Brief introduction about me
 
-•You can call me Ichiro or Zio 💫
+•You can call me Zio 💫
 
 •As for my personality, I'm a bit shy about starting a conversation and apologizing. I'm a bit afraid of continuing to talk when playing with strangers 💦
 
